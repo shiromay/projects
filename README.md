@@ -58,7 +58,7 @@
 
 
 
-✦ Using this space to organize and post my stuff from school,from a subjetc called Pensamento Computacional.
+✦ Using this space to organize and post my stuff from school, from a subjetc called Pensamento Computacional.
 🌸
 
 
